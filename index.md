@@ -1,6 +1,6 @@
 # Experiments in Amsterdam (Jordaan) 30-10 / 13-11 2018 
 
-## Nederlandse beschrijving
+## Nederlandse beschrijving (English below)
 
 Voor een onderzoek naar kunst en waarneming zijn we op zoek naar deelnemers. We kunnen je helaas niet veel over de inhoud van het onderzoek vertellen, behalve dat het om het kijken naar hedendaagse kunst gaat en dat we je laten vertellen wat je ziet. We zijn niet geïnteresseerd in een professionele analyse, maar wel in je spontane gedachtes en ideeën. Je hoeft dus geen kenner te zijn, maar het wel interessant vinden om naar moderne kunst te kijken en je gedachtes te delen. 
 
