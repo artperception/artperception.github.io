@@ -2,7 +2,9 @@
 
 ## Nederlandse beschrijving
 
-Voor een onderzoek naar kunst en waarneming zijn we op zoek naar deelnemers van een 
+Voor een onderzoek naar kunst en waarneming zijn we op zoek naar deelnemers. We kunnen je helaas niet veel over de inhoud van het onderzoek vertellen, behalve dat het om het kijken naar hedendaagse kunst gaat en dat we je laten vertellen wat je ziet. We zijn niet geïnteresseerd in een professionele analyse, maar wel in je spontane gedachtes en ideeën. Je hoeft dus geen kenner te zijn, maar het wel interessant vinden om naar moderne kunst te kijken en je gedachtes te delen. 
+
+Het onderzoek wordt geleidt door [dr. Maarten Wijntjes](m.w.a.wijntjes@tudelft.nl) (van de TU Delft, naast het bouwen van bruggen en rakketten doen ze daar dus ook onderzoek naar visuele waarneming!), in samenwerking met dr. Rob van Lier (van de Radboud Universiteit) en wordt grotendeels uitgevoerd door Ward Groutars (master student Design for Interaction, TU Delft). 
 
 De komende maand help ik mee met een onderzoek naar visuele perceptie van beeldende kunst.
 Dit onderzoek wordt ondernomen vanuit de TU Delft en de Radboud Universiteit en zal plaatsnemen in een Gallerij in de Jordaan.
