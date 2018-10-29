@@ -1,4 +1,6 @@
-# Experiments in Amsterdam (Jordaan) 30-10 / 13-11 2018 
+# Art and Perception experiment in Amsterdam (Jordaan) 30-10 / 13-11 2018 
+
+
 
 ## Nederlandse beschrijving (English below)
 
