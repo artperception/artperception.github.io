@@ -1,6 +1,8 @@
 # Art perception experiment in the Lakenhal 
 
 
+![Atelier gebouw](/images/rembrandt2.png)
+
 
 ## Nederlandse beschrijving (English below)
 
