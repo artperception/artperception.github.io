@@ -1,4 +1,4 @@
-# Art and Perception experiment in Lakenhal (Leiden)  
+# Art perception experiment in the Lakenhal 
 
 
 
