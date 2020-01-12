@@ -4,11 +4,11 @@
 
 ## Nederlandse beschrijving (English below)
 
-Voor een onderzoek naar kunst en waarneming zijn we op zoek naar deelnemers. We kunnen je helaas niet veel over de inhoud van het onderzoek vertellen, behalve dat het om het kijken naar werken van Rembrandt gaat en dat we je laten vertellen wat je ziet. We zijn niet geïnteresseerd in een professionele analyse dus je hoeft dus geen kenner te zijn (maar wel). 
+Voor een onderzoek naar kunst en waarneming zijn we op zoek naar deelnemers. We kunnen je helaas niet veel over de inhoud van het onderzoek vertellen, behalve dat het om het kijken naar werken van Rembrandt gaat en dat we je laten vertellen wat je ziet. We zijn niet geïnteresseerd in een professionele analyse dus je hoeft dus geen kenner te zijn (maar mag wel). 
 
 Het onderzoek wordt geleidt door [dr. Maarten Wijntjes](mailto:m.w.a.wijntjes@tudelft.nl) (van de TU Delft, naast het bouwen van bruggen en raketten doen ze daar dus ook onderzoek naar visuele waarneming!) en wordt grotendeels uitgevoerd door Cato Nitzsche (master student Design for Interaction, TU Delft). 
 
-Het experiment duurt ongeveer 1.5 uur en vindt plaats in de Lakenhal te Leiden. De tijden waar we nog proefpersonen zoeken zijn:
+Het experiment duurt ongeveer 1.5 uur en vindt plaats in de [Lakenhal](https://www.lakenhal.nl/) te Leiden. De tijden waar we nog proefpersonen zoeken zijn:
 
 - Dinsdag 21 januari 10.30 -12.00
 - Dinsdag 21 januari 12.30-14.00
@@ -27,7 +27,7 @@ For our research on art and perception we are looking for participants. We canno
 
 This project is lead by [dr. Maarten Wijntjes](mailto:m.w.a.wijntjes@tudelft.nl) (from the Delft University of Technology, yes indeed, beside building bridges and rockets, they also investigate visual perception) and will largely be conducted by Cato Nitzsche (master student Design for Interaction, TU Delft). 
 
-The experiment will take about 1 hour, and you will receive a small compensation for your time (20E). Do take your 'BSN' for our meticulous registration, at least of you want to reveive the compensation. We will test on the following days:
+The experiment lasts about 1.5 hours and takes place in the [Lakenhal](https://www.lakenhal.nl/). The timeslots we still have place are:
 
 - Tuesday 21 January 10.30 -12.00
 - Tuesday 21 January 12.30-14.00
